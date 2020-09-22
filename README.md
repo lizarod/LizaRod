@@ -5,6 +5,13 @@
 
 I am **Lizandra**, and it is pronounced "one-woman-band"
 
+With a background in Marketing, Mobile & Social Media strategy, I am a forever defender of intuitive design and clean code.
+
+
+- 📫 How to reach me: lizandrajrod@gmail.com 
+- 🤝 https://www.linkedin.com/in/lizandrajrodriguez/ 
+- 😄 Pronouns: she/her
+- ⚡ Fun fact: Cuban who doesn't drink coffee.
 
 
 <!--
