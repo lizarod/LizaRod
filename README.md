@@ -1,4 +1,11 @@
-### Hi there 👋
+
+![Header Liz Rodriguez](/img/header.jpg)
+### Hola!  👋
+
+
+I am **Lizandra**, and it is pronounced "one-woman-band"
+
+
 
 <!--
 **lizarod/LizaRod** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
