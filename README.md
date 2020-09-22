@@ -10,6 +10,7 @@ With a background in Marketing, Mobile & Social Media strategy, I am a forever d
 
 - 📫 How to reach me: lizandrajrod@gmail.com 
 - 🤝 https://www.linkedin.com/in/lizandrajrodriguez/ 
+- 📸 https://www.behance.net/BeLizandra
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: Cuban who doesn't drink coffee.
 
